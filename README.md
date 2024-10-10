@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on any possible project
 - 📫 How to reach me: Just message me😁
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: I am actually a petroleum engineer😏😏
+- ⚡ Fun fact: I am a baby Programmer full of humour😁😁
 
 <!---
 Walugyo/Walugyo is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
